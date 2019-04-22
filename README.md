@@ -1,1 +1,0 @@
-# pamela-regudo
